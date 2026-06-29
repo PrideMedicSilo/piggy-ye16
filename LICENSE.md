@@ -1,4 +1,4 @@
-
+rivals top Script is the best rivals Script, featuring no cooldown and auto-sell. Safe and powerful for all your needs.
 
 
 
